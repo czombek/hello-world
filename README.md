@@ -7,8 +7,6 @@ I have met two aliens in my life, and I turned them over to the government. They
 
 Ok, I've said too much. None of this is true... just ignore this, you didn't read anything here. Ha-ha yea, nothing here! 
 
-Tell no one.
-
-Nice to meet you, you're now a part of the Secret.
+Nice to meet you, you're now a part of the Secret. 
 
 
